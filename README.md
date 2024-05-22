@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sidshaw12345@gmail.com**
 
-- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/1Db3S0vZaShe6BezYs5Yk81sIUga_zSIC/view?usp=sharing)
+- 📄 Know about my experiences [RESUME](https://drive.google.com/file/d/18WHvwOCrOg6ZQTvXjKXvCKi1yZfBbPaH/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
